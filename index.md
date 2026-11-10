@@ -1,3 +1,6 @@
+---
+title: Buh.
+---
 Jayden Li(jbl011@ucsd.edu)  
 D39 Arya Mazumdar  
 **What is the most interesting topic covered in your domain this quarter?**  
